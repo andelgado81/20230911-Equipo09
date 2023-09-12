@@ -1,8 +1,5 @@
-Andrea Delgado
-=======
-Romina Dorrego
-=======
-Rafael Vargas
-=======
-Junior Aldair Ramirez Salazar
-=======
+# **Junior Aldair Ramirez Salazar**
+
+## País de nacimiento: Perú
+
+### País de residencia: Perú  :peru: :grin:
