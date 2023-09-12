@@ -8,3 +8,6 @@ Junior Aldair Ramirez Salazar
 =======
 Patricia Ardila 
 ======= 
+**Andrea Delgado**
+Uruguay
+Uruguay :wave:
